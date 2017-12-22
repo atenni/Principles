@@ -4,13 +4,13 @@
 
 Dreams + reality + determination = a successful life.
 
-## Truth – or, more precisely, an accurate undertanding of reality – is the essential foundation for any good outcome
+## Truth – or, more precisely, an accurate understanding of reality – is the essential foundation for any good outcome
 
-## Be radically open–minded and redically transparent
+## Be radically open–minded and radically transparent
 
 * Radical open–mindedness and radical transparency are invaluable for rapid learning and effective change.
 * Don't let fears of what others think of you stand in your way.
-* Embracing radical truth and radical transparemcy  will bring more meaningful work and more meaningful realationships.
+* Embracing radical truth and radical transparency  will bring more meaningful work and more meaningful relationships.
 
 ## Look to nature to learn how reality works
 
@@ -42,7 +42,7 @@ Dreams + reality + determination = a successful life.
 
 ## Own your outcomes
 
-## Look at the machine from the highter level
+## Look at the machine from the higher level
 
 * Think of yourself as a machine operating within a machine and know that you have the ability to alter your machines to produce better outcomes.
 * By comparing your outcomes with your goals, you can determine how to modify your machine.
