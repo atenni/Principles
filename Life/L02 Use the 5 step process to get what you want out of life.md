@@ -1,6 +1,6 @@
 # Use the 5 step process to get what you want out of life
 
-## Have clean goals
+## Have clear goals
 
 * Prioritise: While you can have virtually anything you want, you can't have
   everything you want.
