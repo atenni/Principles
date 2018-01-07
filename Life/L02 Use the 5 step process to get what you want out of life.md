@@ -31,3 +31,30 @@
 * Distinguish proximate cause from root cause.
 * Recognise that knowing what someone (including you) is like will tell you
   what you can expect from them.
+
+## Design a plan
+
+* Go back before you go forward.
+* Think about your problem as a set of outcomes produced by a machine.
+* Remember that there are typically many paths to achieving your goals.
+* Think of your plan as being like a movie script in that you visualise who
+  will do what through time.
+* Write down your plan for everyone to see and to measure your progress
+  against.
+* Recognise that it doesn't take a lot of time to design a good plan.
+
+## Push through to completion
+
+* Great planners who don't execute their plans go nowhere.
+* Good work habits are vastly underrated.
+* Establish clear metrics to make certain that you are following your plan.
+
+## Remember that weaknesses don't matter if you find solutions
+
+* Look at the patterns of your mistakes and identify at which step in the
+  5–Step Process you typically fail.
+* Everyone has at least one big thing that stands in the way of their success;
+  find yours and deal with it.
+
+## Understand your own and others' mental maps and humility
+
