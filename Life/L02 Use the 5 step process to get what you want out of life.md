@@ -15,8 +15,7 @@
 * Knowing how to deal well with your setbacks is as important as knowing how to
   move forward.
 
-## 2. Identify and don't tolerate problems that stand in the way of you
-   achieving those goals
+## 2. Identify and don't tolerate problems that stand in the way of you achieving those goals
 
 * View painful problems as potential improvements that are screaming at you.
 * Don't avoid confronting problems because they are rooted in harsh realities
