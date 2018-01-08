@@ -1,10 +1,14 @@
-# Embrace reality and deal with it
+Embrace reality and deal with it
+================================
+
 
 ## Be a hyperrealist
 
 Dreams + reality + determination = a successful life.
 
+
 ## Truth – or, more precisely, an accurate understanding of reality – is the essential foundation for any good outcome
+
 
 ## Be radically open–minded and radically transparent
 
@@ -13,6 +17,7 @@ Dreams + reality + determination = a successful life.
 * Don't let fears of what others think of you stand in your way.
 * Embracing radical truth and radical transparency  will bring more meaningful
   work and more meaningful relationships.
+
 
 ## Look to nature to learn how reality works
 
@@ -24,6 +29,7 @@ Dreams + reality + determination = a successful life.
   that is permanent and it drives everything.
 * Evolve or die.
 
+
 ## Evolving is life's greatest accomplishment and its greatest reward
 
 * The individual's incentives must be aligned with the group's goals.
@@ -33,6 +39,7 @@ Dreams + reality + determination = a successful life.
   you want to be.
 * What you will be will depend on the perspective you have.
 
+
 ## Understand nature's practical lessons
 
 * Maximise your evolution.
@@ -40,14 +47,18 @@ Dreams + reality + determination = a successful life.
 * It is a fundamental law of nature that in order to gain strength on has to
   push one's limits, which is painful.
 
+
 ## Pain + reflection = progress
 
 * Go to the pain rather than avoid it.
 * Embrace tough love.
 
+
 ## Weigh second– and third–order consequences
 
+
 ## Own your outcomes
+
 
 ## Look at the machine from the higher level
 

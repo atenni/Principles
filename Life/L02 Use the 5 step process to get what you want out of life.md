@@ -1,4 +1,6 @@
-# Use the 5 step process to get what you want out of life
+Use the 5 step process to get what you want out of life
+=======================================================
+
 
 ## 1. Have clear goals
 
@@ -15,6 +17,7 @@
 * Knowing how to deal well with your setbacks is as important as knowing how to
   move forward.
 
+
 ## 2. Identify and don't tolerate problems that stand in the way of you achieving those goals
 
 * View painful problems as potential improvements that are screaming at you.
@@ -25,12 +28,14 @@
 * Distinguish big problems from small ones.
 * Once you identify a problem, don't tolerate it.
 
+
 ## 3. Diagnose problems to get at their root causes
 
 * Focus on the "what is" before deciding "what to do about it".
 * Distinguish proximate cause from root cause.
 * Recognise that knowing what someone (including you) is like will tell you
   what you can expect from them.
+
 
 ## 4. Design a plan
 
@@ -42,6 +47,7 @@
 * Write down your plan for everyone to see and to measure your progress
   against.
 * Recognise that it doesn't take a lot of time to design a good plan.
+
 
 ## 5. Push through to completion
 
@@ -57,5 +63,6 @@
   5–Step Process you typically fail.
 * Everyone has at least one big thing that stands in the way of their success;
   find yours and deal with it.
+
 
 ## Understand your own and others' mental maps and humility
